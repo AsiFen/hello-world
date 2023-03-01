@@ -1,4 +1,3 @@
-I am pretty
-he loves me not
-no
-yes
+Asisipho ente
+Fine babe
+14 December
